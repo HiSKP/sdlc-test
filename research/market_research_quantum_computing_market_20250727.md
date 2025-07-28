@@ -1,4 +1,4 @@
-# Market Research Summary: Quantum Computing Market
+# Market Research Summary SKP: Quantum Computing Market
 
 ## Executive Summary
 Certainly! Here is a strategic insights report and actionable recommendations for entering the **Quantum Computing Market** in 2024, based on the market research, competitor analysis, and customer sentiment provided:
